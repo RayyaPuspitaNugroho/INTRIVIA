@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [10] Sejauh Ini 
 [kakak fasilnya ramah, dan teman-teman orangnya pada rame] 
+
+## Harapan Kuliah
+[Bisa mengikuti mata kuliah dengan baik, menang banyak lomba, punya banyak relasi, IPK 4.00, lulus 3,5 tahun dengan lulusan CUMLAUDE, AAMIIN]
